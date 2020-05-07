@@ -4,4 +4,4 @@ i'm a very introvert person so everything that i will write here might not the t
 well, what i can say is that evn now as i'm writting this text i don't know what github is for.
 according to what i think github is for, i think it is a webserver that is mostly used to share codes.
 So my perpose here is to work with you guys and i'm willing to be one of the trusted members whom you'll be able to share any info with.
-THANK YOU FOR READING THIS TEXT YOU ARE APPRECIATED. BYE!!!
+THANK YOU FOR READING THIS TEXT YOU ARE APPRECIATED. BYE!!!!
